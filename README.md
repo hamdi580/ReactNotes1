@@ -1,1 +1,1 @@
-sonunda
+en sonunda bunu yapabildim.
